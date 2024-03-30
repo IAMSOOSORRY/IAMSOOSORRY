@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ethical Hacking, Cyber Security
 - 🌱 I’m currently learning Cyber Security
 - 💞️ I’m looking to collaborate on Cyber Security Projects
-- 📫 How to reach me Mail:prashanthbt95@gmail.com, Instagram:www.instagram.com/prashanthbt_
+- 📫 How to reach me Linkedin:www.linkedin.com/in/prashanth-bt :Mail:prashanthbt95@gmail.com, Instagram:www.instagram.com/prashanthbt_
 - 😄 Pronouns: I-am-soo-sorry
 - ⚡ Fun fact: Technology
 
